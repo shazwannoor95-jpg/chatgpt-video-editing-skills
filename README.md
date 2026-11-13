@@ -1,1 +1,0 @@
-# chatgpt-video-editing-skills
